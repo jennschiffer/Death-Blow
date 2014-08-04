@@ -9,7 +9,7 @@ He walked out of the copyroom and put his hands on his hips.
 
 A murmur and a groan emanated from the crowd of cubicles as heads rose to see who was addressing the room.
 
-"We've been having a lot of butt incidents lately. We've talked about this before. Photocopying your butt is limited to once a year, on April Fool's. We can't be using company resources this frivilously. Need I remind you that we're struggling to stay relevant in a dying industry? If we want to keep journalism authentic, we have to maintain a degree of professionalism!" Adam raised his voice a little, btu as he did it began to crack.
+"We've been having a lot of butt incidents lately. We've talked about this before. Photocopying your butt is limited to once a year, on April Fool's. We can't be using company resources this frivilously. Need I remind you that we're struggling to stay relevant in a dying industry? If we want to keep journalism authentic, we have to maintain a degree of professionalism!" Adam raised his voice a little, but as he did it began to crack.
 
 Adam could see the eyes rolling across the newsroom floor. Several reporters ignored him and went back to work.
 
@@ -27,9 +27,9 @@ He'd asked his boss about getting back in the game - his kids were teenagers now
 
 "I just really want to do it, however irrational it seems to you." Jim had told him.
 
-"Well, we are at capacity for our journalists. We don't have any room on the team right now, and we still need a CPO to replace you too, so it's not as simple as you think. But, I'll tell you what, Jim. If you bring me a bombshell story, and I mean a real honest-to-goodness scoop of a story, I'll move you. Show me you still got it, and then we can talk."
+"Well, we are at capacity for our journalists. We don't have any room on the team right now, and we still need a CPO to replace you too, so it's not as simple as you think. But, I'll tell you what, Jim. If you bring me a bombshell story, and I mean a real honest-to-goodness scoop of a story, I'll move you. Show me you still got it, and then we'll talk."
 
-This was enough for Jim. All he needed now was a good story. This was Chicago, after all, so something was bound to crop up. So, Jim Jenkins waiting idly for the story of a lifetime to come along. Sometimes stories did, but the other journalists who were better in touch with their skills always seemed to beat him to the punch.
+This was enough for Jim. All he needed now was a good story. This was Chicago, after all, so something was bound to crop up. So, Jim Jenkins waited idly for the story of a lifetime to come along. Sometimes stories did, but the other journalists who were better in touch with their skills always seemed to beat him to the punch.
 
 Things went on this way for a while, and Jim was about to give up, until that day when he found a body in an airport bathroom.
 
