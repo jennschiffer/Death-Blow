@@ -1,7 +1,7 @@
 ## Characters and Plot Notes
 ### Cast
 
-_Jim Jenkins_: Chief Photography Officer for a dying newspaper house, the Chicago Tribune. He is unimpressive and underwhelming.
+_Jim Jenkins_: Chief Photocopy Officer for a dying newspaper house, the Chicago Tribune. He is unimpressive and underwhelming.
 
 _Lost Alice_: amoral techpunk hacker that does it for the lulz, responsible for the first hacking but is she responsible for all of it? DUN DUN DUNNnnNNNnn.
 
