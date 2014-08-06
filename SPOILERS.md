@@ -11,3 +11,16 @@ _Mike Dyson_: The maniacal heir to the Dyson fortune, probably the bad guy becau
 ### Plot Notes.
 
 None yet from me, I'm flying YOLO. - A-fab
+
+### Potential Chapter Names?
+
+* Blowhard
+* Three Shits to the Wind
+* Wind-ing Up
+* SBD
+* WINDHAND
+* THE DYSON SPHERE
+* You Are the Wind Beneath My Arm Stumps
+* A Foul Wind Blows
+* A Fowl Wind Blows ( chicken-based plot device? )
+* Employees Must Lose Hands
