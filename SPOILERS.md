@@ -7,6 +7,8 @@ _Lost Alice_: amoral techpunk hacker that does it for the lulz, responsible for 
 
 _Mike Dyson_: The maniacal heir to the Dyson fortune, probably the bad guy because he had one of those quintessential Bad Guy laughs. Maybe.
 
+_Adam_: Small time writer at the Chicago Tribune, feels underappreciated. He later then aids to mike dyson's evil plans.. (?)
+
 
 ### Plot Notes.
 
