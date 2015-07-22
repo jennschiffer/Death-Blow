@@ -43,11 +43,11 @@ The police tackled her mother as the train rolled away, and that scene was the l
 
 Most people would find it pretty awful to set your mother up for fraud, but Alice didn't think so. Not after everything that had happened.
 
-Still, though, the police had assumed that her mother was the culprit but then thought her to be an accomplice. That wasn't planned for, but hey, Alice had needed a good excuse to get out of Berlin. She had fake identification, a whole lot of money, and no place in particular to be. Life was good: her chances of getting caught faded away along with that scene of her mother.
+Still, though, the police had assumed that her mother was the culprit, but then thought her to be an accomplice. That wasn't planned for, but hey, Alice had needed a good excuse to get out of Berlin. She had fake identification, a whole lot of money, and no place in particular to be. Life was good: her chances of getting caught faded away along with that scene of her mother.
 
 Alice opened up her laptop and connected to her VPN so that she could get away with some hacking, knowing full well exactly which ports the train's free WiFi would block. As she logged onto IRC to tell the tale of her spurious exploits, a sound let her know that she had mail waiting.
 
-She wasn't expecting any mail, and this was an account that didnd't get a lot of traffic. Only a few clients knew about it. So, as she switched windows to investigate, she breathed a little deeper to brace herself. Maybe another job had come in. that would be just the thing she needed right now.
+She wasn't expecting any mail, and this was an account that didn't get a lot of traffic. Only a few clients knew about it. So, as she switched windows to investigate, she breathed a little deeper to brace herself. Maybe another job had come in. that would be just the thing she needed right now.
 
 _To: Lost Alice <alice@serious.technology>_
 _From: Mercutio <merc@hotemail.com>_
@@ -56,7 +56,7 @@ _Alice, call me immediately. There's an issues with the latest job, and so we ne
 
 An issue? Alice scowled, scrunching up her thin eyebrows in disapproval. She never had unsatisfied customers, or at least hadn't before. Alice pulled out one of her cell phones, fumbled around for the right sim in a bag of loose items, and then in a few minutes she had Mercutio on the line.
 
-"Merc, what's the deal. I don't bullshit. My shit's tight, that job was good. There's no way they could trace." she didn't even wait for an introduction.
+"Merc, what's the deal. I don't bullshit. My shit's tight son, that job was good. There's no way they could trace." she didn't even wait for an introduction.
 
 "That part is all swell, except the wrong person found the body. Some guy I've never heard of - a Jim Jenkins - was the poor soul that found it, not... not The President."
 
